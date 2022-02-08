@@ -1,0 +1,6 @@
+- favorite things
+- chocolate
+- nutella
+- cordon bleu
+- video games
+- my friends
